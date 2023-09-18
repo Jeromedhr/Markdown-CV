@@ -1,5 +1,5 @@
 **JEROME DHAUYRE**
-photo profil.JPG
+![photo](photo profil.JPG)
 
 *Technicien Supérieur Réseaux et Systèmes*
 
