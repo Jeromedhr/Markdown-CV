@@ -1,6 +1,6 @@
 **JEROME DHAUYRE**
 
-![Photo de profil](photo profil.JPG)
+![Photo de profil](https://github.com/Jeromedhr/Markdown-CV/blob/main/photo%20profil.JPG)
 
 *Technicien Supérieur Réseaux et Systèmes*
 
