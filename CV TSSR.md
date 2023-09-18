@@ -48,7 +48,7 @@ Cours sur la gestion de projet pour des Master 1 et 2 d'Arts et Com en atelier h
 
 **Formateur - chargé de mission Occitanie**
 
-        **UCRM 2015-PRESENT**
+**UCRM 2015-PRESENT**
 
 Référent d'une formation de 4 mois pour artistes du spectacle vivant financée par la région Occitanie 
 
@@ -64,7 +64,7 @@ Accompagnement mensuel d'artistes du spectacle vivant sans emploi et bénéficia
 
 **Responsable des Ventes Occitanie - Nouvelle Aquitaine** 
 
-        **FEDEX  2009-2014**
+**FEDEX  2009-2014**
 
 Encadrement de 3 chargés d'affaires sur la région sud-ouest (Nouvelle Aquitaine, Occitanie) Mise en place d'un plan d'action personnalisé par chargé d'affaire
 
@@ -76,7 +76,7 @@ Elaboration et suivi budget prévisionnel équipe sud-ouest
 
 **Chef de Marché : IDF - Occitanie - Nouvelle Aquitaine - PACA** 
 
-        **BIOFINESSE GROUPE POMONA : 2007-2009**
+**BIOFINESSE GROUPE POMONA : 2007-2009**
 
 Développement de la restauration collective pour adultes de 1% à 20% du CA annuel de la société en deux ans
 
@@ -86,7 +86,7 @@ Encadrement d'une équipe de 4 commerciaux sédentaires et un commercial sur Par
 
 **Responsable Grands Comptes Occitanie - Nouvelle Aquitaine**  
 
-        **GLS FRANCE : 2001-2005**
+**GLS FRANCE : 2001-2005**
 
 Gestion et développement du portefeuille des clients clés du Sud-Ouest de la France: 35 clients pour un CA de 5 millions d'euros
 
@@ -98,9 +98,9 @@ Référent et formateur de l’équipe commerciale sud-ouest de l’outil CRM
 
 **Attaché commercial Midi-Pyrénées et technico-commercial moitié sud France**
 
-        **EXTAND : 1999-2000**
+**EXTAND : 1999-2000**
 
-        **GAFFAREL MUSIQUE : 1995-1998**
+**GAFFAREL MUSIQUE : 1995-1998**
 
 **CENTRES D'INTERET**
 
